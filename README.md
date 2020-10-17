@@ -5,7 +5,7 @@ La
 
 ## Cardano (ADA) staken?
 
-Wanneer je investeert in Cardano (ADA) voor de lange termijn en daarover een passief inkomen wilt verdienen is het staken van Cardano (ADA) de uitgelezen mogelijkheid. Tevens ondersteunt u hiermee het netwerk. De Cardano die u staked blijft uw eigendom en is vrij opneembaar op ieder moment van de dag.
+Wanneer u investeert in Cardano (ADA) voor de lange termijn en daarover een passief inkomen wilt verdienen is het staken van Cardano (ADA) de uitgelezen mogelijkheid. Tevens ondersteunt u hiermee het netwerk. De Cardano die u staked blijft uw eigendom en is vrij opneembaar op ieder moment van de dag.
 
 Zoekt u een betrouwbare staking pool dan bent u bij ons aan het juiste adres.
 
